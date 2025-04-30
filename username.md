@@ -1,4 +1,4 @@
-marvin evins
+marvin evins.
 hancock high school
 
 
